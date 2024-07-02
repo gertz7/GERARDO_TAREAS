@@ -1,1 +1,0 @@
-# GERARDO_TAREAS
